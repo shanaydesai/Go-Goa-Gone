@@ -39,5 +39,5 @@ Rajeev Masand gave the film a 3/5 rating and wrote, "So much in this film is goo
 
 Shubir Rishi of Rediff.com gave it 2.5/5 stars and said "Go Goa Gone" is a fun watch. There are plenty of innocent-sounding, slow-exploding one-liners, which are funny". Anupama Chopra of Hindustan Times gave it 2.5 out of 5 stars stating that, "The problem with Go Goa Gone is too much cleverness and not enough plot. Shubhra Gupta The Indian Express rated the film 2.5 out of 5 stars and wrote, "The film would have been funnier if the second act hadn't gone into a slide. And also if Khan hadn't played Boris so straight."
 
-Storyline
+Storyline:
 Two friends, Luv (Vir Das) and Hardik (Kunal Khemu) are going through bad times. Luv has learned that his girlfriend has been cheating on him and Hardik is this close to being fired from his job. They both badly need a break and when their roommate Bunny (Anand Tiwari) informs them that he is going to Goa for a presentation, they jump at the chance for a vacation. Once in Goa, Luv meets a girl, Luna (Pooja Gupta) who invites him to a rave party organized by Russian mafia on a remote island. At the party, an experimental drug is introduced. Then, come morning, things go totally wrong for the three hapless guys and the girl. As it turns out, the untested drug has a deadly side effect...
